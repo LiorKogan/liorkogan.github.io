@@ -1,1 +1,0 @@
-# liorkogan.github.io
